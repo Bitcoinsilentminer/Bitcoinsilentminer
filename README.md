@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Bitcoinsilentminer
-- 👀 I sell bitcoin silent mining software
+- 👋 Hi, I’m @Crptoexpert
+- 👀 I sell FAKE USDT SENDER SOFTWARE
 - 🌱 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (https://wa.me/+447380416528)
